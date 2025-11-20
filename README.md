@@ -20,4 +20,4 @@ Location: Turkey
 
 ---
 
-© 2024 Emre Yazıcı. All rights reserved.
+© 2025 Emre Yazıcı. All rights reserved.
